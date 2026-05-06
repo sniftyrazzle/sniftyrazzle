@@ -1,6 +1,6 @@
 hellloooo!! im Soro, xel or Eve!! 
 i like playing nd drawing 
-my age is 14-16 and any age can int! but except older people... sorru sorry im too scared to int to old people!... 
+my age is 14-16 and any age can int!
 
   always int first because im too shy... 
 
@@ -8,7 +8,7 @@ my age is 14-16 and any age can int! but except older people... sorru sorry im t
   yatta, razzle (and dazzle), 
   shelly, Vee! 
   
-  <img width="120" height="78" alt="Image" src="https://github.com/user-attachments/assets/a90495c5-2472-45b8-83c6-9885eeae79c1" /> 
+  <img width="149" height="78" alt="Image" src="https://github.com/user-attachments/assets/a90495c5-2472-45b8-83c6-9885eeae79c1" /> 
 
   oh i forogy too! im aromantic
 
@@ -18,4 +18,4 @@ my age is 14-16 and any age can int! but except older people... sorru sorry im t
 
  that's all!! 
 
- <img width="70" height="70" alt="Image" src="https://github.com/user-attachments/assets/c207ae2e-8d62-460a-b3a5-6140b86fa182" />
+ <img width="130" height="78" alt="Image" src="https://github.com/user-attachments/assets/c207ae2e-8d62-460a-b3a5-6140b86fa182" />
