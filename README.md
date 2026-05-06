@@ -14,4 +14,8 @@ my age is 14-16 and any age can int! but except older people... sorru sorry im t
 
  andd 
  
- DNI list: D*RKSHITTERS. and weird ass people and problematic people. and that one guy named ivan with his ex gf that named putri.
+ DNI list: D*RKSHITTERS. and weird ass people and problematic people. and Anastasia. Zoe. Ali. 
+
+ that's all!! 
+
+ <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/c207ae2e-8d62-460a-b3a5-6140b86fa182" />
