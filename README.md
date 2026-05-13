@@ -10,7 +10,7 @@ my age is 14-16 and any age can int!
   
   <img width="149" height="78" alt="Image" src="https://github.com/user-attachments/assets/a90495c5-2472-45b8-83c6-9885eeae79c1" /> 
 
-  oh i forogy too! im aromantic
+  oh i forgot too! im aromantic
 
  andd 
  
