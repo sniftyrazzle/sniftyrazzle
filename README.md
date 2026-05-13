@@ -18,4 +18,4 @@ my age is 14-16 and any age can int!
 
  that's all!! 
 
- <img width="130" height="78" alt="Image" src="https://github.com/user-attachments/assets/c207ae2e-8d62-460a-b3a5-6140b86fa182" />
+ <img width="134" height="123" alt="Image" src="https://github.com/user-attachments/assets/c207ae2e-8d62-460a-b3a5-6140b86fa182" />
