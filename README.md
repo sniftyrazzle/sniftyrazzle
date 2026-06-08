@@ -6,7 +6,7 @@ my age is 14-16 and any age can int!
 
   my favorite characters are 
   yatta, razzle (and dazzle), 
-  shelly, Vee! 
+  shelly, Vee! Sam (from until dawn)
   
   <img width="149" height="78" alt="Image" src="https://github.com/user-attachments/assets/a90495c5-2472-45b8-83c6-9885eeae79c1" /> 
 
