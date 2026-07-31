@@ -1,21 +1,17 @@
-hellloooo!! im Soro, xel or Eve!! 
-i like playing nd drawing 
-my age is 14-16 and any age can int!
+hi this is froggy my king
 
-  always int first because im too shy... 
+<img width="41" height="41" alt="Image" src="https://github.com/user-attachments/assets/e74d81f9-18c0-4719-ab23-a974a662a871" />
 
-  my favorite characters are 
-  yatta, razzle (and dazzle), 
-  shelly, Vee! Sam (from until dawn)
-  
-  <img width="149" height="78" alt="Image" src="https://github.com/user-attachments/assets/a90495c5-2472-45b8-83c6-9885eeae79c1" /> 
 
-  oh i forgot too! im aromantic
+hello I'm soro or eve whatevr u cal me and my favorite characters is Samantha Giddings, Vee, Shelly, Razzle and there's more. 
 
- andd 
- 
- DNI list: D*RKSHITTERS. and weird ass people and problematic people. and Anastasia. Zoe. Ali. 
 
- that's all!! 
 
- <img width="134" height="123" alt="Image" src="https://github.com/user-attachments/assets/c207ae2e-8d62-460a-b3a5-6140b86fa182" />
+my favorite YouTubers is FroggyDude, Laurenzside, Kubzscouts, raygloom, teamfaisal, Twixxel.
+
+
+Dni list: Anastasia, Zoe, Ali, problematic people, darkshippers, proshippers, bad people. 
+
+that's all!! 
+
+<img width="41" height="41" alt="Image" src="https://github.com/user-attachments/assets/1accf3ed-5b51-4f08-b94d-077417669b42" />
