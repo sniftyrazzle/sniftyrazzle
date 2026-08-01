@@ -15,5 +15,10 @@ Dni list: Anastasia, Zoe, Ali, problematic people, darkshippers, proshippers, ba
 
 <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/1accf3ed-5b51-4f08-b94d-077417669b42" />
 
-my baby Wesker🥹
+ponytown : You can int freely and c+h but sometimes I get offtab so w2i !! also int first since I'm shy😭
+
+ 
+my son Wesker🥹
 <img width="99" height="100" alt="Image" src="https://github.com/user-attachments/assets/b590e8dd-0610-4399-8d4d-cd006799a255" /> 
+
+that's all!!
