@@ -6,12 +6,12 @@
    <img src= "https://64.media.tumblr.com/5732a504e2e6fed4f9ed181716082dee/cc8e156faaedf326-f0/s500x750/4f79db30991477eb989f6e238a793119d11df34f.pnj" width="720" />
 
 <p align="center"> 
-${\color{#dcabf9}\text{ hi my name is soro or xes, nn are fine too. my favorite characters is Samantha Giddings, shelly}}$
+${\color{#dcabf9}\text{ hi my name is soro or xes, nn are fine too. my favorite characters is Samantha Giddings, Shelly, Razzle.}}$
 <p align="center">
 <p align="center">
   ${\color{#e7a1f5}\text{feel free 2 int and w2i, cud freely!}}$
 <p align="center">
-${\color{#d495e0}\text{fav YTubers: FroggyDude, Laurenzside, Kubzscouts, raygloom, teamfaisal, Twixxel.}}$
+${\color{#d495e0}\text{fav YTubers: FroggyDude, Laurenzside, Kubzscouts, raygloom, teamfaisal, Slipperyhc, Squiddo, Twixxel.}}$
 <p align="center">
   ${\color{#bb7ddf}\text{DNI AT ALL: Anastasia, Zoe, Ali, problematic people, darkshippers, proshippers. }}$
    
