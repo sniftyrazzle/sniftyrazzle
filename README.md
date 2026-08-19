@@ -14,7 +14,12 @@ ${\color{#dcabf9}\text{ hi my name is soro or xes, nn are fine too. my favorite 
 ${\color{#d495e0}\text{fav YTubers: FroggyDude, Laurenzside, Kubzscouts, raygloom, teamfaisal, Slipperyhc, Squiddo, Twixxel.}}$
 <p align="center">
   ${\color{#bb7ddf}\text{DNI AT ALL: Anastasia, Zoe, Ali, problematic people, darkshippers, proshippers. }}$
-   
+ 
+<img src="https://media.discordapp.net/attachments/1520586601430909060/1539407427101925416/snappy-fix-1787093658991.gif?ex=6a86dd23&is=6a858ba3&hm=382cda0819d11420585c9f0193d7c6dfff0607d8983a7203c992359d72a3f71d&=&width=180&height=320" />
+
+ <p align="center">
+  ${\color{#bb7ddf}\text{my cute bird wesker.. }}$
+ 
   <p align="center">     
 <a href="https://guns.lol/playsunny">gunslol
 </a> ·
